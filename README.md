@@ -1,2 +1,7 @@
-# infor-biodata-elon-musk
-pak ini tugas one complier kelompok 2 12-5
+# XII-5 PROFILE ELON MUSK KEL 2 
+pak ini KELOMPOK 2 12-5
+ALDO
+KEYLA ALTHEA
+RINDI
+MALIQ
+RIZKY.E
